@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @EminMahmutovic, I live in Sweden and working as a customer service representative.
+- 👀 I’m interested in analysis, economy and statistics, and have a double BA degree in economics and statistics
+- 🌱 I’m currently learning Microsoft Excel
+- 📫 How to reach me https://www.linkedin.com/in/emin-mahmutovic-034686276/
